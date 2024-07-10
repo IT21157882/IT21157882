@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **dananjayakushan777@gmail.com**
   
-- 🧑‍💻 Google Developer profile  **g.dev/Mrshan24**
+- 🧑‍💻 Google Developer profile  [https://g.dev/Mrshan24]
 
 - ⚡ Fun fact **I am Funny😎**
 
